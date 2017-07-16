@@ -39,9 +39,9 @@ Becoming a successful entrepreneur requires holding up a mirror to all the limit
 
 The game of online marketing requires much more courage and boldness than I ever imagined.
 
--I made the decision here and now to change!
--I am climbing over my problems rather than to dwelling on them.
--I am changing my stinkin' thinkin'. 
+- I made the decision here and now to change!
+- I am climbing over my problems rather than to dwelling on them.
+- I am changing my stinkin' thinkin'. 
 
 It's not easy, and I will have setbacks. But I an forging ahead!
 
