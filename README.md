@@ -30,9 +30,7 @@ I had wild expectations!
 But something was holding me back. 
 
 - Maybe... my belief wasn’t big enough.
-
 - Maybe... I didn’t think I deserved it. 
-
 - Maybe... I didn’t think I was good enough.
 
 Starting an online business is a serious wake up call.
