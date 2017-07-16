@@ -83,5 +83,6 @@ It's not for the faint of heart.
 We can still be friends.
 
 However, if you really want it... and you're not sure where to start or who to trust...
+
 Message me... "I'm ready to get started!"
 
