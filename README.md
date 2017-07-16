@@ -8,38 +8,61 @@ It started in Amway.
 I remember sitting across the table, watching this well dressed man drawing circles and dollar signs as I imagined a better life for me and my family and friends!
 
 "You get 5, who get their 5, who get their 5 and before you know it, everybody's rich!".
+
 Of course, for me it didn’t work out that way. 
-Over the years, I tried again and again, 
-from desktop computers, to vitamins, 
-to energy drinks, etc.
+
+Over the years, I tried again and again, from desktop computers, to vitamins, to energy drinks, etc.
+
 Then came the internet, and “Attraction Marketing,” and info products. 
+
 I believed this was my ticket, because now I could market my products without chasing down friends and family.
+
 It sounded way cooler!
+
 But I struggled... and struggled... and struggled!
-I gave up several times. 
+
+In fact, I gave up several times. 
+
 I discovered entrepreneurship isn't for the faint of heart.
+
 I had wild expectations!
+
 But something was holding me back. 
+
 Maybe... my belief wasn’t big enough.
+
 Maybe... I didn’t think I deserved it. 
+
 Maybe... I didn’t think I was good enough.
+
 Starting an online business is a serious wake up call.
+
 Becoming a successful entrepreneur requires holding up a mirror to all the limiting beliefs I was holding onto.
+
 The game of online marketing requires much more courage and boldness than I ever imagined.
-I made the decision here and now to change!
-I am climbing over my problems rather than to dwelling on them.
-I am changing my stinking thinkin. 
+
+-I made the decision here and now to change!
+-I am climbing over my problems rather than to dwelling on them.
+-I am changing my stinkin' thinkin'. 
+
 It's not easy, and I will have setbacks. But I an forging ahead!
+
 I am focusing my energy and creating something great!
+
 Today, after years of struggle… 
-... after beating myself up...
-… I simply won't live any other way... 
-… I am going to live and prosper…
-… I want the freedom lifestyle of an entrepreneur...
+-... after beating myself up...
+-… I simply won't live any other way... 
+-… I am going to live and prosper…
+-… I want the freedom lifestyle of an entrepreneur...
+
 It's my birthright.
+
 It's what I think about daily.
+
 I'm committed to being all in...
+
 … so that my family and friends and I can enjoy a freedom lifestyle.
+
 Wake up! 
 Do you want a freedom lifestyle? 
 Are you committed to your success?
