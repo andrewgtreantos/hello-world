@@ -1,5 +1,4 @@
 # hello-world
-testing out and learning about GitHub
 
 I have struggled in more Network Marketing companies than I care to remember…
 
