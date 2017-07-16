@@ -72,12 +72,16 @@ Give it your all! Starting right now...
 
 If this sounds crazy... or doesn't inspire you, or scares the hell out of you...
 then maybe you're not ready.
+
 And that's totally fine.
 I wasn't ready either...
+
 I totally understand...
 It's not for everybody. 
 It's not for the faint of heart.
+
 We can still be friends.
+
 However, if you really want it... and you're not sure where to start or who to trust...
 Message me... "I'm ready to get started!"
-Edit
+
