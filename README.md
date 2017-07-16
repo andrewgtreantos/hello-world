@@ -3,6 +3,7 @@ testing out and learning about GitHub
 
 I have struggled in more Network Marketing companies than I care to remember…
 It started in Amway. I remember sitting across the table, watching this well dressed man drawing circles and dollar signs as I imagined a better life for me and my family and friends!
+
 "You get 5, who get their 5, who get their 5 and before you know it, everybody's rich!".
 Of course, for me it didn’t work out that way. 
 Over the years, I tried again and again, 
