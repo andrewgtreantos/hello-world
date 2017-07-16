@@ -44,6 +44,7 @@ Give it your all! Starting right now...
 - Take Massive Action... Daily!
 - Learn from your mistakes!
 - Become the entrepreneur you were destined to be!
+
 If this sounds crazy... or doesn't inspire you, or scares the hell out of you...
 then maybe you're not ready.
 And that's totally fine.
